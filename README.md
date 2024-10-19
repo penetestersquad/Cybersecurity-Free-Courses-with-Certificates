@@ -82,4 +82,3 @@ My First Step For My Younger Self To Complete These Free CISCO Course with Gover
 
 - [Cybersecurity Essential](https://t.ly/XFLmp)
 
-If you want Placement Guaranteed Ethical Hacking Bootcamp Which is Paid then click this [link](https://rb.gy/i71dzw).
